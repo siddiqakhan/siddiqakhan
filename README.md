@@ -1,10 +1,9 @@
 - 👋 Hi, I’m @siddiqakhan
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 👀 I’m interested in becoming actress
+- 🌱 I’m currently learning in 10th
+- 💞️ I’m looking to collaborate on my self
+- 📫 How to reach me by messaging me on instagram  meh I'd is
+@x__cute.soul__x
 
-<!---
-siddiqakhan/siddiqakhan is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+<!---!>
+
